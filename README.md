@@ -3,7 +3,6 @@
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
 </p>
-
 <p align="center">
 I'm an artist, animator, and vtuber. I like RPGmaker style games and psychological horror games. ~(>_<~)
 </p>
@@ -62,4 +61,13 @@ You can find my Socials and Commission info on my Carrd.
 </p>
 <p align="center">
 <img width="90" height="90" alt="hanako-kun-tbhk" src="https://github.com/user-attachments/assets/bbb30c80-947a-472a-b26b-1f2ed34a1a3d" />
+</p>
+<p align="center">
+<img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
+</p>
+<p align="center">
+Thanks for taking the time to read my Github, you get a cookie
+</p>
+<p align="center">
+<img width="90" height="90" alt="2256048i58m9827tk" src="https://github.com/user-attachments/assets/5cb36716-b046-497c-b198-08793487c176" />
 </p>
