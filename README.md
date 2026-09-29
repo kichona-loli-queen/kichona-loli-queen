@@ -66,6 +66,14 @@ You can find my Socials and Commission info on my Carrd.
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
 </p>
 <p align="center">
+Frequently Asked Questions: 
+Q: What is "loli" and why is it in your username?
+A: loli is a term that describes a small petite cute anime girl, people usually confuse it with lolicon, which is someone who is sexually attracted to loli characters, I am not a lolicon, I just like lolis and wish to be perceived as one
+</p>
+<p align="center">
+<img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
+</p>
+<p align="center">
 Thanks for taking the time to read my Github, you get a cookie
 </p>
 <p align="center">
