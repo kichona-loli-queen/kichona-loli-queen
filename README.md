@@ -8,8 +8,8 @@
 I'm an artist, animator, and vtuber. I like RPGmaker style games and psychological horror games. ~(>_<~)
 </p>
 <p align="center">
-<img width="150" height="20" alt="blinkiesCafe-JY" src="https://github.com/user-attachments/assets/cd3d373f-c94a-402d-8dd0-a347238fa2fd" />
 <img width="150" height="20" alt="artist-rainbow" src="https://github.com/user-attachments/assets/947a9575-2e5f-41b6-881f-5f8a52f0e15d" />
+<img width="150" height="20" alt="blinkiesCafe-JY" src="https://github.com/user-attachments/assets/cd3d373f-c94a-402d-8dd0-a347238fa2fd" />
 <img width="150" height="20" alt="0269-sickashell" src="https://github.com/user-attachments/assets/806ef986-4f75-4805-92a9-ecfa2dd30748" />
 </p>
 <p align="center">
