@@ -1,3 +1,4 @@
+
 ## Hello I'm Kichona, but you can call me Kicho („• ⩊ •„)/
 
 <p align="center">
@@ -8,6 +9,7 @@ I'm an artist, animator, and vtuber. I like RPGmaker style games and psychologic
 </p>
 <p align="center">
 <img width="150" height="20" alt="blinkiesCafe-JY" src="https://github.com/user-attachments/assets/cd3d373f-c94a-402d-8dd0-a347238fa2fd" />
+<img width="150" height="20" alt="artist-rainbow" src="https://github.com/user-attachments/assets/947a9575-2e5f-41b6-881f-5f8a52f0e15d" />
 <img width="150" height="20" alt="0269-sickashell" src="https://github.com/user-attachments/assets/806ef986-4f75-4805-92a9-ecfa2dd30748" />
 </p>
 <p align="center">
@@ -24,9 +26,16 @@ I have AuDHD, Social Anxiety and Depression, so plz be patient with me (; ω ; )
 <p align="center">
 <img width="150" height="20" alt="0272-disabledpride" src="https://github.com/user-attachments/assets/4f48a2cf-e980-48bd-8708-d334d02d79ca" />
 <img width="150" height="20" alt="blinkiesCafe-94" src="https://github.com/user-attachments/assets/1d5c7f2d-236c-49c4-be65-9fc295c49f68" />
+<img width="150" height="20" alt="617262250-a91d216f-3118-47ab-b0e4-c5a5c6efb856" src="https://github.com/user-attachments/assets/bf647058-abc8-4c04-b3f1-14b913b7bcfb" />
+<img width="150" height="20" alt="617262443-d2552cb3-dcce-48b9-8f8b-b5b6ab6aec54" src="https://github.com/user-attachments/assets/1f009d38-0a73-4f13-85f1-a6a265623ad5" />
 </p>
 <p align="center">
 DMs are always open and I love making new friends!! o(>ω<)o
+</p>
+<p align="center">
+<img width="150" height="20" alt="13" src="https://github.com/user-attachments/assets/4b9c4170-f619-498f-9008-8d3b525140a2" />
+<img width="150" height="20" alt="39" src="https://github.com/user-attachments/assets/010e8977-7d2f-452b-92aa-73423b06a1a5" />
+<img width="150" height="20" alt="blinkiesCafe-gX" src="https://github.com/user-attachments/assets/1ceee287-dbb7-48a0-b3aa-d37d0bf98d24" />
 </p>
 
 <p align="center">
