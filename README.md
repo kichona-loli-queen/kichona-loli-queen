@@ -74,12 +74,52 @@ You can find my Socials and Commission info on my Carrd.
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
 </p>
-  
-***Frequently Asked Questions:***
-  
+
+<details>
+
+<summary>🌼OC Ref Sheet🌼</summary>
+
+<img width="500" height="300" alt="Aiko_Koizumi_Ref_Sheet" src="https://github.com/user-attachments/assets/f176709e-28a7-44ee-8418-283476acc2e1" />
+
+
+</details>
+
+<details>
+
+<summary>🎀My Art🎀</summary>
+
+<img width="300" height="400" alt="Hensmclag_Kicho" src="https://github.com/user-attachments/assets/21e905a7-37c5-4e1e-9007-5e6dc9ebe655" />
+<img width="300" height="400" alt="Angel_Chi_Kicho" src="https://github.com/user-attachments/assets/1e0b826c-ae1e-47a4-b64e-4129aee82c8b" />
+<img width="300" height="400" alt="No _3_Mitsuba_Kicho" src="https://github.com/user-attachments/assets/3dd65adc-a2e1-4997-885f-84bddaae4efb" />
+<img width="300" height="400" alt="Aiko_Lolita_Dress_Kicho" src="https://github.com/user-attachments/assets/1eb71254-7239-4a9c-a2dd-5f8b46b53d11" />
+<img width="300" height="400" alt="Cat_at_Sunset_Kicho" src="https://github.com/user-attachments/assets/43118bbd-b0ab-4d7b-a074-fc7cd32ff9ae" />
+<img width="300" height="400" alt="Aoi_Prom_Queen_-_lovoliidtiys_Kicho" src="https://github.com/user-attachments/assets/f449f9e2-5c4b-407c-8339-8ae6981845a4" />
+<img width="300" height="300" alt="Festival_Nene_-_Moovens200DTIYS_Kicho" src="https://github.com/user-attachments/assets/e8dc9025-c1cd-4ab2-a811-48abbae4c459" />
+<img width="240" height="310" alt="Mitsuba_Day_Kicho" src="https://github.com/user-attachments/assets/3adfe2f4-2386-4bcb-9ccf-08b8c8de747a" />
+<img width="300" height="400" alt="Nene-chan_-_bammvee_2k_dtiys_Kicho" src="https://github.com/user-attachments/assets/48b552b2-f622-4ee6-9fea-380a85479077" />
+<img width="300" height="400" alt="Valentines_Mitsukou_Kicho" src="https://github.com/user-attachments/assets/0bb70bc2-9bd3-49e4-bce0-45a70a417dbd" />
+<img width="300" height="400" alt="Mitsukou_Happy_New_Year_Kicho" src="https://github.com/user-attachments/assets/6de969ae-347c-4712-8c3b-25643bfd2852" />
+<img width="300" height="400" alt="Mitsukou_peeking_thru_the_window_owo_Kicho" src="https://github.com/user-attachments/assets/85a72095-79e2-4567-870e-b482b53460b6" />
+<img width="279" height="496" alt="Mitsukou_Cheek_Kiss_Kicho" src="https://github.com/user-attachments/assets/b2a9f163-662e-4aea-8c51-3d74285c8529" />
+<img width="300" height="400" alt="Mitsukou_Kicho" src="https://github.com/user-attachments/assets/c81d5fe9-bb5f-49b8-90e5-90189d93cb81" />
+
+
+</details>
+
+<p align="center">
+<img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
+</p>
+
+<details>
+
+<summary>Frequently Asked Questions:</summary>
+
 **Q:** What is "loli" and why is it in your username?
 
   **A:** loli is a term that describes a small petite cute anime girl, people usually confuse it with lolicon, which is someone who is sexually attracted to loli characters, I am not a lolicon, I just like lolis and wish to be perceived as a loli myself
+
+</details>
+
 
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
