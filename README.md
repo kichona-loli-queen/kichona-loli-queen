@@ -37,7 +37,7 @@ DMs are always open and I love making new friends!! o(>ω<)o
 <img width="150" height="20" alt="39" src="https://github.com/user-attachments/assets/010e8977-7d2f-452b-92aa-73423b06a1a5" />
 <img width="150" height="20" alt="blinkiesCafe-gX" src="https://github.com/user-attachments/assets/1ceee287-dbb7-48a0-b3aa-d37d0bf98d24" />
 </p>
-
+<p align="center">
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
 </p>
@@ -74,7 +74,21 @@ You can find my Socials and Commission info on my Carrd.
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
 </p>
+<p align="center">
+Leave me a question or a drawing on my Strawpage.
+</p>
+<p align="center">
+<img width="60" height="77" alt="00e0272a969fa6ddfa1af1a6ef80145f_t1" src="https://github.com/user-attachments/assets/2b572a47-0792-4929-8882-2f1761e607ba" />
+<p align="center">
+<a href="https://kichololiqueen.straw.page/home">
+<img width="300" height="40" alt="blinkiesCafe-kg" src="https://github.com/user-attachments/assets/6e01cf14-470c-49e3-8c6d-4a87a888cecf" />
+</a>
+</p>
 
+<p align="center">
+<img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
+</p>
+ 
 <details>
 
 <summary>🌼OC Ref Sheet🌼</summary>
