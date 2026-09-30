@@ -84,6 +84,9 @@ Leave me a question or a drawing on my Strawpage.
 <img width="300" height="40" alt="blinkiesCafe-kg" src="https://github.com/user-attachments/assets/6e01cf14-470c-49e3-8c6d-4a87a888cecf" />
 </a>
 </p>
+<p align="center">
+<img width="90" height="90" alt="basil-omori-macarena" src="https://github.com/user-attachments/assets/971aee20-5a99-47e6-bfca-c82ed0198851" />
+</p>
 
 <p align="center">
 <img width="390" height="25" alt="1264441lnbyh51sg0" src="https://github.com/user-attachments/assets/8ff8a087-80e7-4085-b0b5-e53b2314159a" />
