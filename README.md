@@ -91,8 +91,8 @@ You can find my Socials and Commission info on my Carrd.
 <img width="300" height="400" alt="Hensmclag_Kicho" src="https://github.com/user-attachments/assets/21e905a7-37c5-4e1e-9007-5e6dc9ebe655" />
 <img width="300" height="400" alt="Angel_Chi_Kicho" src="https://github.com/user-attachments/assets/1e0b826c-ae1e-47a4-b64e-4129aee82c8b" />
 <img width="300" height="400" alt="No _3_Mitsuba_Kicho" src="https://github.com/user-attachments/assets/3dd65adc-a2e1-4997-885f-84bddaae4efb" />
-<img width="300" height="400" alt="Aiko_Lolita_Dress_Kicho" src="https://github.com/user-attachments/assets/1eb71254-7239-4a9c-a2dd-5f8b46b53d11" />
-<img width="300" height="400" alt="Cat_at_Sunset_Kicho" src="https://github.com/user-attachments/assets/43118bbd-b0ab-4d7b-a074-fc7cd32ff9ae" />
+<img width="300" height="400" alt="Aiko_Lolita_Dress_Kicho" src="https://github.com/user-attachments/assets/7dbef3a1-d045-4dda-8127-3343fee693fb" />
+<img width="300" height="400" alt="Cat_at_Sunset_Kicho" src="https://github.com/user-attachments/assets/d1033425-a854-4648-8caa-9662c0f8e490" />
 <img width="300" height="400" alt="Aoi_Prom_Queen_-_lovoliidtiys_Kicho" src="https://github.com/user-attachments/assets/f449f9e2-5c4b-407c-8339-8ae6981845a4" />
 <img width="300" height="300" alt="Festival_Nene_-_Moovens200DTIYS_Kicho" src="https://github.com/user-attachments/assets/e8dc9025-c1cd-4ab2-a811-48abbae4c459" />
 <img width="240" height="310" alt="Mitsuba_Day_Kicho" src="https://github.com/user-attachments/assets/3adfe2f4-2386-4bcb-9ccf-08b8c8de747a" />
